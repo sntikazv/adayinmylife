@@ -11,4 +11,6 @@ Selamat datang di "a day in my life" versi tikaa, okey jadi pastinya bangun bobo
 
  terus kalau masuk siang aku masak dulu, yeah kalau apa? kalau ga males ya ges ya...
 
- masak simpel sih, kadang pakai sayur kadang engga, paling simpel banget nya ya goreng ayam
+ masak simpel sih, kadang pakai sayur kadang engga, paling simpel banget nya ya goreng ayam yah terus bontot deh kalau untuk mam siang
+
+ asli seruuu hwheee
